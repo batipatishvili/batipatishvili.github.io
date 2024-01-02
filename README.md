@@ -1,1 +1,1 @@
-Hi! Welcome to batipatishvili webpage. 
+Hi! Welcome to Bati Patishvili webpage. 
